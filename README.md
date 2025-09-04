@@ -3,4 +3,4 @@
 - 🌱 currently learning flutter mobile app development
 - 📫 How to reach me iamjerry0527@gmail.com
 - I have interests in web/Graphics designs definitely looking to it
-- - 😄 Pronouns: ... JERRY
+- 😄 Pronouns: ... JERRY
